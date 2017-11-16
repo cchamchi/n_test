@@ -15,5 +15,7 @@ VVVVVVVV
 구구구구
 // 민재 코드
 add code
+
+찬DDOL_TV-구독!!
 _독독독
 _트로피카나
